@@ -24,7 +24,8 @@
 - 📧 Email: **hrushi27112001@gmail.com**  
 - 💼 LinkedIn: [linkedin.com/in/rushipatil04](https://linkedin.com/in/rushipatil04)  
 - 🖥 GitHub: [github.com/rushipatil04](https://github.com/rushipatil04)  
-- 📷 Instagram: [instagram.com/hrushi_patil_04](https://www.instagram.com/hrushi_patil_04?igsh=Ymh5aTg2amYwM2F3)  
+- 📷 Instagram: [instagram.com/hrushi_patil_04](https://www.instagram.com/hrushi_patil_04?igsh=Ymh5aTg2amYwM2F3)
+- 🚀 Portfolio: [rushi patil](https://rushipatil04.github.io/Portfolio/) 
 
 ---
 
